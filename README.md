@@ -1,2 +1,0 @@
-# divergentdissent
-YT resources
